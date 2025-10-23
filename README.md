@@ -11,4 +11,5 @@ __Commander Legal English Set:__
 https://drive.google.com/file/d/1ZNthiM-wGMrdu9xeyrZ3MSQZ3Q8o22sw/view?usp=sharing
 
 __Unique (Non-reprint) Commander Legal English Set:__
-https://drive.google.com/file/d/1hH79k4IGPdcQdcS6JgtDMOFsTHAcjGAd/view?usp=sharing
+_Note: Alternate Arts are included_
+https://drive.google.com/file/d/1us8_DN9Hll9dALgTBge8fQNvfRG6g0bM/view?usp=sharing
